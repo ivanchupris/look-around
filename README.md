@@ -1,3 +1,4 @@
 # look-around
 
-Well, it´s quite interesting here, should come earlier, yeah! 
+And how about starting something good ? 
+
